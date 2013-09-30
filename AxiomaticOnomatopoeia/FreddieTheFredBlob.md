@@ -1,1 +1,1 @@
-He is running around the classroom.
+He is in Hawaii.
