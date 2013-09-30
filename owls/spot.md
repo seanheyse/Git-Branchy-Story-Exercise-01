@@ -1,5 +1,1 @@
-<<<<<<< HEAD
-Spot tried to run, but was caught by the cops.
-=======
-Sport tried to run, but was caught by the cops.
->>>>>>> SpotStory
+Spot and QOPS went to the local tavern to hang out.
