@@ -1,3 +1,5 @@
-Shirley is the evil overlord. She rules over Troy with an iron fist.
+Part three
 
-It is a dark and stormy night. Shirley is sitting in the top room of her tower, brooding over the affairs of her domain.
+Shirley is still in her armored carrier, zooming off to battle.
+
+
