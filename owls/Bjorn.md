@@ -1,1 +1,1 @@
-Bjorn in tavern. Bjorn drink ale.
+Bjorn continue drink ale.
