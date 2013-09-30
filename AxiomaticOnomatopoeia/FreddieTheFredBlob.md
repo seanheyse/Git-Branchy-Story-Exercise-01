@@ -1,1 +1,1 @@
-Freddie is chilling on an old Pre-Calculus math test.
+He is running around the classroom.
