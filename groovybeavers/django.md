@@ -1,3 +1,3 @@
 This is Django.md
 
-Django is rustling cattle in Texas.
+Django is on his way to jail.
