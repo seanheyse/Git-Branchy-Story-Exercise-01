@@ -1,1 +1,1 @@
-Sean is the main character. He wins the story. He is currently in RPI.
+Sean teleports to Alaska to take a undergdaduate train to Hawaii. 
