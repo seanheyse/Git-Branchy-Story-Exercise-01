@@ -1,1 +1,1 @@
-This is a file
+Spot was bailed out by his friend QOPS.
