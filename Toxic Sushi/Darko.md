@@ -1,1 +1,1 @@
-Completely Naked
+At the local pub
