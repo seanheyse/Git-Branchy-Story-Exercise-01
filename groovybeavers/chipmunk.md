@@ -1,1 +1,1 @@
-The chipmunk is hungry.
+The chipmunk is gigantic and carnivorous.
